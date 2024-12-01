@@ -20,5 +20,5 @@ The FBI kept a file on him as a result of his column Notes of a Dirty Old Man in
 10. 1994 – Died on March 9 from leukemia at the age of 73, leaving behind a legacy as one of the most influential and iconic writers of the 20th century.
 
 # Further reading
-[Wikipedia](https://en.m.wikipedia.org/wiki/Charles_Bukowski)
+[Wikipedia](https://en.m.wikipedia.org/wiki/Charles_Bukowski)  
 [IMDb](https://m.imdb.com/name/nm0001977/)
